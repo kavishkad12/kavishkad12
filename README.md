@@ -1,15 +1,15 @@
-# 👋 Hi, I'm Kawishka!  
+# 👋 Hi, I'm KD STUDIO!  
 ### **Welcome to my GitHub Profile!**
 
 ---
 
-## 🌟 About Me  
+## 🌟 About Me  please write to me about for upload to github and add this lwhatsapp number =+94720552487  add to github
 - 🌏 **I'm from:** Sri Lanka 🇱🇰  
 - 💻 **I love creating:** Innovative web and mobile applications.  
 - 🌱 **Currently exploring:** Advanced JavaScript, APIs, and Android development.  
 - 🚀 **Passionate about:** Learning, coding, and building tools that make life easier!  
 
----
+---please write to me about for upload to github and add this lwhatsapp number =+94720552487  add to github
 
 ## 🔧 Skills & Tools
 - **Programming Languages:**  
