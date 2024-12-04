@@ -23,7 +23,7 @@ Hey there! I'm **KD STUDIO**, a passionate web and mobile developer based in **S
 ## 📞 **Contact Me**  
 
 - 📲 **WhatsApp:** [Message me directly](https://wa.me/94720552487)  
-- 📧 **Email:** [your.email@example.com](mailto:your.email@example.com)  
+- 📧 **Email:** [kd1076347@gmail.com](kd1076347@gmail.com )
 
 ---
 
